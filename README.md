@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-MOMA071204HTSTRNA5
+MOMA071204HTSTRNA5
